@@ -1,1 +1,2 @@
 ## genesis block
+O.△.S.▽.
